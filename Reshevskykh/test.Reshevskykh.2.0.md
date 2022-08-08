@@ -1,1 +1,1 @@
-# Mryna Reshevskykh
+# Maryna Reshevskykh
